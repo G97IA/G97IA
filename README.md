@@ -1,6 +1,6 @@
 # Me-
 
--¡Hey! Que pasa, soy Gabriel Zuniga🧔🏻.
+-¡Hey! Que pasa, soy Gabriel Zuniga 🧔🏻.
 
 Informática Administrativa.
 
